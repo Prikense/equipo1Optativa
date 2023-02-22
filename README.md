@@ -1,4 +1,4 @@
-# equipo 1 Optativa
+# Equipo 1 Optativa
 
 *Repo del código del proyecto de la optativa de octavo semestre para corajillo del equipo 1*
 

@@ -11,6 +11,6 @@ Erika Paredes - A01637536
 
 Luis Alonso Martines - A01636255 
 
-Fernando Arturo Rodriguez Lee- A01114887 
+Fernando Arturo Rodríguez Lee- A01114887 
 
 Nickolás Rodríguez Ochoa - A01251446 

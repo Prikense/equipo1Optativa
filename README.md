@@ -9,7 +9,7 @@ Marco Antonio Carrillo Ortiz - A00826984
 
 Erika Paredes - A01637536 
 
-Luis Alonso Martines - A01636255 
+Luis Alonso Martínez - A01636255 
 
 Fernando Arturo Rodríguez Lee- A01114887 
 
